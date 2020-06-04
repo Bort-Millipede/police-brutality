@@ -1,9 +1,18 @@
+## Buffalo
 
-## Rochestor
+### Police tackle man giving interview | June 1st
+
+Three police officers run over to and tackle man with hands raised giving an interview to local news. Location: Bailey Avenue & Decker Street, Buffalo.
+
+**Links**
+* https://twitter.com/secretlaith/status/1268251322467450880
+
+
+## Rochester
 
 ### Police shoot at people filming | May 31st
 
-Police are seen to shoot at individuals who were recording an incedent
+Police are seen shooting at individuals who were recording an incident.
 
 **Links**
 * https://twitter.com/bleeezyy_/status/1266894195865931778
@@ -35,6 +44,7 @@ A police officer shoves a man repeatedly off the road and into a metal fence by 
 **Links**
 
 * https://twitter.com/ZachReports/status/1266557305107202049
+* https://twitter.com/BTSsavedmylife9/status/1266754310161006594
 
 ### Cop shoving a person to the ground towards metal trash bins | May 30th
 
@@ -43,11 +53,11 @@ An NYPD officer pushes a civilian down towards trash cans.
 **Links**
 
 * https://twitter.com/crankberries/status/1266584559245803522
+* https://twitter.com/greg_doucette/status/1266850004720812032
 
 ### NYPD rams protesters | May 31st
 
 A NYPD squad car is driven into civilians, ramming them out of its path. 
-
 
 **Links**
 
@@ -62,7 +72,7 @@ Police officers are seen beating and assaulting men and women for standing aroun
 
 * https://twitter.com/theactivistTati/status/1266889419858075649
 
-### Police shove woman to the ground, inducing a seizure | May 30th
+### Police shove woman to the ground, inducing a seizure | May 29th
 
 Woman was sent to the ER due to seizure caused by policeman flinging her to the ground violently.
 
@@ -70,15 +80,11 @@ Woman was sent to the ER due to seizure caused by policeman flinging her to the 
 
 * https://twitter.com/whitney_hu/status/1266540710188195843
 
-### Police chase down and assault protesters | May 30th
+* https://twitter.com/JasonLemon/status/1266529475757510656
 
-Policement beat and shove protestors to the ground.
+* https://twitter.com/zayer_dounya/status/1266581597760831489
 
-**Links**
-
-* https://twitter.com/BTSsavedmylife9/status/1266754310161006594
-
-### Police drive by man and hit him with car door | May 30th
+### Police drive by man and hit him with car door | May 29th
 
 Policeman deliberately opens car door to knock an individual down to the ground.
 
@@ -86,17 +92,9 @@ Policeman deliberately opens car door to knock an individual down to the ground.
 
 * https://twitter.com/DriveWendys/status/1266555286678048770
 
-### Officer shoves woman to the ground, calls her a "stupid bitch" | May 30th
-
-The officer pushes a woman down, and screams at her that she is a stupid bitch.
-
-**Links**
-
-* https://twitter.com/JasonLemon/status/1266529475757510656
-
 ### State senator pepper sprayed | May 31st
 
-Image shows the senator with pepper spray in his eyes.
+Image shows Senator Zellnor Myrie with pepper spray in his eyes.
 
 **Links**
 
@@ -104,7 +102,7 @@ Image shows the senator with pepper spray in his eyes.
 
 ### Protesters with hands up assaulted by police | May 31st
 
-Protestors had their hands up, yet were pepper sprayed in the face
+Protestors had their hands up, yet were pepper sprayed in the face.
 
 **Links**
 
@@ -112,9 +110,43 @@ Protestors had their hands up, yet were pepper sprayed in the face
 
 ### Huffpost reporter is arrested by NYPD | May 30th
 
-Despite clearly identifying himself, the reporter was taken into custody during a protest
+Despite clearly identifying himself, the reporter was taken into custody during a protest.
 
 **Links**
 
 * https://twitter.com/HuffPost/status/1266936484692725766
 * https://www.huffpost.com/entry/huffpost-reporter-chris-mathias-arrested_n_5ed320d9c5b640cb8341c921
+
+### Member of the New York State Assembly pepper-sprayed
+
+Assemblywoman Diana Richardson takls about being pepper-sprayed at the Barclays Centre.
+
+**Links**
+
+* https://twitter.com/GwynneFitz/status/1266522692326428672
+
+### Officer threatens protestors with what appears to be a handgun | June 1st
+
+Officer is seen here brandishing what appears to be a handgun and pointing it at protestors.
+
+**Links**
+
+* https://mobile.twitter.com/jangelooff/status/1267308341660979200
+
+### Officers beat man with batons
+
+Police are seen here beating a man trying to escape, hitting him multiple times with batons, instead of trying to detain him.
+
+**Links**
+
+* https://www.reddit.com/r/newyorkcity/comments/gv8aft/police_beat_man_without_even_attempting_to_arrest/
+* https://www.reddit.com/r/PublicFreakout/comments/gv43ar/police_beat_man_without_even_attempting_to_arrest/
+
+
+### Man walking his bike beaten by officers with batons | June 3rd
+
+A man crossing the street with his bike at a stoplight crosswalk is beaten by police with batons.
+
+**Links**
+
+* https://twitter.com/joshfoxfilm/status/1268366550475603969
